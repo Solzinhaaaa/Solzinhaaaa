@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Sol ☀️
+- 👀 I’m interested in art 🖌️
+- 🌱 I am a student 🏫
+- 😄 Pronouns: she/her
+- ✨ "with love and imagination we can fly to the moon" ✨
